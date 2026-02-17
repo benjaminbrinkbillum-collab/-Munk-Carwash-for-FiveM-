@@ -1,1 +1,0 @@
-# -Munk-Carwash-for-FiveM-
